@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **kushalpatelds@gmail.com**
 
-- 📄 Know about my experiences [https://kushalpatel18.github.io/experience/](https://kushalpatel18.github.io/experience/)
+- 📄 Know about my experiences [https://kushaliitm.github.io/experience/](https://kushalpatel18.github.io/experience/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left"> 
